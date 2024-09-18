@@ -1,2 +1,2 @@
 # Chertilin_Lab1
-https://drive.google.com/drive/folders/1u4AD3_T1GM4s4qvIQLzSKP8E3KOwuITr
+https://docs.google.com/document/d/1PfCmhNW89idUuB_e7yu-rdVzY_8R4ubq/edit
