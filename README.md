@@ -1,2 +1,2 @@
 # Chertilin_Lab1
-https://docs.google.com/document/d/1Je92vPjGSYYX_kK4yD19VsKqVXycw6iU/edit
+https://docs.google.com/document/d/1-0vAe42ouRDA5VJPP_FErQ9pyPQdr_m9/edit
